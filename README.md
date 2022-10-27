@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Oti007
-- 👀 I’m interested in .. spamming and more
+- 👀 I’m interested in .. spamming and live cc
 - 🌱 I’m currently learning ...by myself
 - 💞️ I’m looking to collaborate and enlightening me more
 - 📫 How to reach me ... otipail777@yahoo.com
